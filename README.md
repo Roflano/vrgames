@@ -1,1 +1,1 @@
-# vrgames
+Some people say vr tech didn’t live up to the hype, at least when it comes to games. But I think it’s still early, and even now you can find some top-tier projects that just aren’t very well-known yet. Or like with the [vr porn game](https://braindancevr.com/) I recently discovered, probably not gonna be a mainstream product, but this is exactly what I expected from vr back then. The chance to get so deep into the experience that it hits not just emotionally, but physically too.
